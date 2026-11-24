@@ -1,2 +1,0 @@
-# Deleguer Cidd Portfolio
-🐸
